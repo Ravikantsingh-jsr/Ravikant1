@@ -1,0 +1,2 @@
+# Ravikant1
+learning
